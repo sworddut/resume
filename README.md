@@ -1,2 +1,2 @@
-简历地址：g[ithub.com/sworddut
+简历地址：[github.com/sworddut
 ](https://sworddut.github.io/resume/)
